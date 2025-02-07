@@ -6,6 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that apply data science to the veterinary field.
 
-📫 How to reach me: chloebush06@gmail.com
-                    www.linkedin.com/in/chloe-busienei-6b4b21211
+📫 How to reach me:
+Email: chloebush06@gmail.com
+LinkedIn: www.linkedin.com/in/chloe-busienei-6b4b21211
 
